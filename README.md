@@ -1,4 +1,5 @@
 E o oscar vai para...
+
 1- Quantas vezes Natalie Portman foi indicada ao Oscar?
 Natalie Portman foi indicada 3 vezes ao Oscar.
 
